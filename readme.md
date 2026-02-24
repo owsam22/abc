@@ -1,4 +1,1 @@
-this 
-is 
-good
-faaa
+thinking something....
